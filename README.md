@@ -6,6 +6,6 @@
 
 WIP Check out guns.lol for more information
 
-  [![HitCount](https://hits.dwyl.com/Jotungoat/Jotungoat.svg?style=flat-square)](http://hits.dwyl.com/Jotungoat/Jotungoat)
+[![HitCount](https://hits.dwyl.com/Jotungoat/Jotungoat.svg?style=flat-square)](http://hits.dwyl.com/Jotungoat/Jotungoat)
 </div>
 
