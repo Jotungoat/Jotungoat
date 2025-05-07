@@ -4,8 +4,7 @@
 
 15 ‎ ‎non-binary ‎ ‎ ‎<img src="https://64.media.tumblr.com/d53651c8742df21a09246888d8459da1/9a530f57905ff2e6-c3/s75x75_c1/84b009debc0aee767c924a7b5481330fe5625b75.gifv" width="15" height="12"/>
 
-WIP Check out guns.lol for more information
+Check guns.lol for more information
 
-[![HitCount](https://hits.dwyl.com/Jotungoat/Jotungoat.svg?style=flat-square)](http://hits.dwyl.com/Jotungoat/Jotungoat)
 </div>
 
