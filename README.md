@@ -7,5 +7,5 @@
 Check guns.lol for more information
 
 
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31buv3yz5qvwdc5gfuwwzgen27qa&cover_image=false&theme=default&show_offline=true&background_color=0d1117&interchange=false&bar_color=404e3c&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" width="110" height="55"/>
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31buv3yz5qvwdc5gfuwwzgen27qa&cover_image=false&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color=404e3c&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" width="110" height="55"/>
 </div>
