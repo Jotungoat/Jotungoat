@@ -6,5 +6,7 @@
 
 Check guns.lol for more information
 
+
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31buv3yz5qvwdc5gfuwwzgen27qa&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=6a9d58&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile" width="200" height="100"/>
 </div>
 
