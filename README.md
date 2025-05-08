@@ -1,3 +1,5 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Jotungoat)
+
 <div align="center">
 
 ‎<img src="https://github.com/user-attachments/assets/b6d74c92-62d5-4d89-bf05-5bc128585179" width="501" height="301"/>
