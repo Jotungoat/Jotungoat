@@ -12,5 +12,5 @@
 check guns.lol for more information
 
 
-<img src="spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31buv3yz5qvwdc5gfuwwzgen27qa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0d1117&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile" width="100" height="50"/>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31buv3yz5qvwdc5gfuwwzgen27qa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 </div>
