@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Jotungoat)
+
 
 <div align="center">
 
