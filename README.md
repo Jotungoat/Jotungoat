@@ -9,7 +9,6 @@
 [prns.page](https://en.pronouns.page/@Sloanrocks)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[discord](https://discord.com/users/597154711455531018)
 </div>
 <div align="center">
-  I‎'m not usually one to approach plp due to social anxiety, but feel free to int with me if you want.
 <img src="https://files.catbox.moe/ogbn0z.png" width="600" height="10"/>
 
 ‎ 
