@@ -6,9 +6,9 @@
 
 ‎<img src="https://github.com/user-attachments/assets/01356983-4f19-4ab2-b7d5-6c9bbedaf451" width="500" height="350"/>
 
-15 ‎ ‎non-binary ‎ ‎ <img src="https://wilardo.crd.co/assets/images/gallery18/2db40534_original.gif?v=a363c8e1" width="15" height="12"/>ㅤnorsk
+15 ‎ ‎non-binary ‎ ‎ <img src="https://wilardo.crd.co/assets/images/gallery28/aca4e372.png?v=e2d503a4" width="15" height="12"/>ㅤnorsk
 
-[strawpage](https://frostgiant.straw.page)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[discord](https://discord.com/users/597154711455531018)
+<img src="https://gifcity.carrd.co/assets/images/gallery10/5146d312.gif?v=e3c0bc0f" width="15" height="12"/> [strawpage](https://frostgiant.straw.page)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[discord](https://discord.com/users/597154711455531018)<img src="https://gifcity.carrd.co/assets/images/gallery10/1911edc0.gif?v=e3c0bc0f" width="15" height="12"/> 
 </div>
 <div align="center">
 <img src="https://files.catbox.moe/9t9qpa.gif" width="500" height="60"/>
