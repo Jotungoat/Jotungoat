@@ -6,7 +6,7 @@
 
 ‎<img src="https://github.com/user-attachments/assets/01356983-4f19-4ab2-b7d5-6c9bbedaf451" width="500" height="350"/>
 
-15 ‎ ‎non-binary ‎ ‎ <img src="https://gifcity.carrd.co/assets/images/gallery94/5bdb3a81.gif?v=e3c0bc0f" width="15" height="12"/>ㅤnorsk
+15 ‎ ‎non-binary ‎ ‎ <img src="https://forestcake.carrd.co/assets/images/gallery01/38de36db.gif?v=f4645532" width="15" height="12"/>ㅤnorsk
 
 <img src="https://gifcity.carrd.co/assets/images/gallery10/5146d312.gif?v=e3c0bc0f" width="15" height="12"/> [strawpage](https://frostgiant.straw.page)  [guns.lol](https://guns.lol/sloanrocks)  [discord](https://discord.com/users/597154711455531018)<img src="https://gifcity.carrd.co/assets/images/gallery10/1911edc0.gif?v=e3c0bc0f" width="15" height="12"/> 
 </div>
