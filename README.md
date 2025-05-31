@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=Jotungoat&color=dc143c&label=Vampires+killed)
 
 <div align="center">
  I love him <img src="https://files.catbox.moe/oxxdl3.png" width="15" height="12"/>
