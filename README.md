@@ -6,7 +6,7 @@
 
 ‎<img src="https://github.com/user-attachments/assets/01356983-4f19-4ab2-b7d5-6c9bbedaf451" width="500" height="350"/>
 
-15 ‎ ‎non-binary ‎ ‎ <img src="https://64.media.tumblr.com/42f4dbb5dd83f499e2fbcae16e60a4a8/f651789587d2564c-e5/s75x75_c1/e2f14c9403ec86d25118d9c4ae9655ec042626a3.gifv" width="15" height="12"/>ㅤnorsk
+15 ‎ ‎non-binary ‎ ‎ <img src="https://wilardo.crd.co/assets/images/gallery18/2db40534_original.gif?v=a363c8e1" width="15" height="12"/>ㅤnorsk
 
 [strawpage](https://frostgiant.straw.page)ㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤ[discord](https://discord.com/users/597154711455531018)
 </div>
